@@ -12,3 +12,8 @@
 - [HARD PACK](https://t.me/send?start=IVzapECJqGwR)
 
 ![hard](https://github.com/user-attachments/assets/e8f0a484-4949-4424-8e8a-55280c280139)
+
+- [PREVIEW](https://anontransfer.com/d/jhgtt050LN)
+
+![preview](https://anontransfer.com/d/jhgtt050LN)
+
