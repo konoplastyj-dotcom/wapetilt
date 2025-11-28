@@ -15,5 +15,5 @@
 
 - [PREVIEW](https://anontransfer.com/d/jhgtt050LN)
 
-![preview](https://anontransfer.com/d/jhgtt050LN)
+- [FREE TELEGRAM](https://t.me/FlinraBot?start=r-youdreambaby)
 
