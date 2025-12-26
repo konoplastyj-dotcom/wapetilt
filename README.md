@@ -1,7 +1,7 @@
 ## RU: Все приватные паки находятся по ссылке ниже.
 ## ENG: All private packs are located at the link below.
 
-- [PREVIEW](https://anontransfer.com/f/fb93b2e5-d1dc-4d73-8879-770e2b2f8166)
+- [ТЕЛЕГРАМ](https://t.me/youdieta)
 
 - [LITE PACK 5$](https://t.me/send?start=IVcl4Y1gzyM0)
 
